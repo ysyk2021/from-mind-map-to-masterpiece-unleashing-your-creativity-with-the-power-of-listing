@@ -1,5 +1,3 @@
-Chapter 2: Mindset for Creative Listing
-=======================================
 
 In this chapter, we'll explore the mindset necessary for creative listing. By adopting a growth mindset towards creativity, overcoming limiting beliefs, building self-confidence, and practicing positive thinking, you'll unleash your creative potential and turn your ideas into masterpieces.
 

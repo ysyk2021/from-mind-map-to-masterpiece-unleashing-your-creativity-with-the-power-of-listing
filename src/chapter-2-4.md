@@ -1,5 +1,3 @@
-How to Embrace Creative Listing
-===========================================================================
 
 In this chapter, we'll explore the concepts of creativity and listing, and how combining the two can lead to powerful results.
 

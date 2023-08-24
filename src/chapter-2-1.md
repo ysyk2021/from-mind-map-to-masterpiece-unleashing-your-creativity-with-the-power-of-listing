@@ -1,5 +1,3 @@
-What Is Creativity?
-===============================================================
 
 In this chapter, we'll explore the meaning of creativity and how it relates to the practice of listing.
 

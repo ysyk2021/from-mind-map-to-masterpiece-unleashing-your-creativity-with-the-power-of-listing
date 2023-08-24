@@ -1,5 +1,3 @@
-Strategies for Building Self-Confidence
-================================================================================
 
 In this chapter, we will discuss strategies for building self-confidence, which is an essential mindset for creative listing. When we lack self-confidence, we tend to doubt our abilities and shy away from taking risks. However, by building self-confidence, we can approach creative listing with a sense of curiosity and playfulness, allowing us to generate more ideas and develop them into masterpieces.
 

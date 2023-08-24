@@ -1,5 +1,3 @@
-The Importance of Idea Generation in Creativity
-=============================================================================================
 
 Idea generation is a crucial aspect of the creative process. It is the starting point where we generate new concepts, explore possibilities, and push beyond what has been done before. Without a strong ideation process, it can be challenging to create something truly unique and inspiring.
 

@@ -1,5 +1,3 @@
-Chapter 4: Using Listing for Idea Generation
-============================================
 
 Idea generation is a crucial part of the creative process. Without a steady stream of new and innovative ideas, it can be challenging to create something truly original and inspiring. In this chapter, we'll explore how you can use listing to help you generate ideas more effectively.
 

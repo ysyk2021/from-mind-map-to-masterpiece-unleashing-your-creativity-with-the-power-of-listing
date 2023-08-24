@@ -1,5 +1,3 @@
-Overcoming Resistance to Incorporating Creativity into Personal and Professional Life
-=======================================================================================================================================================
 
 Incorporating creativity into our personal and professional lives can be a challenging task. In this chapter, we'll explore common forms of resistance to creativity and provide strategies for overcoming them.
 

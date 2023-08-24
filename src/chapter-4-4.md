@@ -1,5 +1,3 @@
-Outlining and organizing
-====================================================================
 
 Listing is a powerful tool for generating and organizing ideas, but it can be overwhelming without proper techniques for outlining and organizing those ideas. In this chapter, we'll explore some strategies for using listing to create effective outlines and organize your ideas.
 

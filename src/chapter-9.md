@@ -1,5 +1,3 @@
-Chapter 8: Sustaining Creative Listing
-======================================
 
 In this chapter, we'll explore strategies for sustaining creativity and maintaining motivation and inspiration in your creative listing practice over the long-term. We'll also address common challenges such as burnout and exhaustion, and provide tips for building a support system.
 

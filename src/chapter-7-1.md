@@ -1,5 +1,3 @@
-Using Listing for Writing
-====================================================================================
 
 Listing is a powerful tool that can be applied to different creative mediums, including writing. By using listing in writing, you can generate and organize ideas, refine and develop themes and characters, and create works of literature that are innovative and impactful. In this chapter, we'll explore some strategies for using listing in writing.
 

@@ -1,5 +1,3 @@
-Chapter 1: Defining Creativity and Listing
-==========================================
 
 In this chapter, we'll explore the concepts of creativity and listing, their history, and how combining the two can lead to powerful results.
 

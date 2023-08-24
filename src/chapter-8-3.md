@@ -1,5 +1,3 @@
-Overcoming Communication Barriers in Creative Collaboration
-==================================================================================================
 
 Collaboration is a vital aspect of creative listing, but it's not always easy. In this chapter, we'll explore how to overcome communication barriers in creative collaboration and work effectively with others.
 

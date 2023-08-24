@@ -1,5 +1,3 @@
-Overcoming Creative Blocks with Listing
-=====================================================================================
 
 Creative blocks are a common challenge in the creative process. They can cause frustration, diminish motivation, and make it challenging to generate fresh ideas. However, using listing for idea generation can help overcome creative blocks and unlock creativity.
 

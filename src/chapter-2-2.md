@@ -1,5 +1,3 @@
-The History of Creative Listing
-===========================================================================
 
 In this chapter, we'll explore the history of creative listing and how it has been used throughout time to enhance creativity and productivity.
 

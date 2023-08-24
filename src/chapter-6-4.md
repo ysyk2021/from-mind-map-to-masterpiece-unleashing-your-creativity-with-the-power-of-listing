@@ -1,5 +1,3 @@
-Overcoming fear of sharing and feedback
-==============================================================================================
 
 In this chapter, we will explore how to refine and develop ideas using listing techniques. We will also discuss strategies for overcoming the fear of sharing your ideas and receiving feedback from others.
 

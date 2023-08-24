@@ -1,5 +1,3 @@
-Clustering and Mind Mapping
-=======================================================================
 
 Listing is a powerful tool for generating ideas, but it can be overwhelming without proper techniques for organizing and visualizing those ideas. In this chapter, we'll explore some strategies for using listing to create effective clusters and mind maps.
 

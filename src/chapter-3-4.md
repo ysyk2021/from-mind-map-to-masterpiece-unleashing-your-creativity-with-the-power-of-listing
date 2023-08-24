@@ -1,5 +1,3 @@
-The Power of Positive Thinking
-=======================================================================
 
 In this chapter, we will explore the power of positive thinking when it comes to creative listing. We will discuss the benefits of a positive mindset and provide strategies for cultivating a positive attitude towards the creative process.
 

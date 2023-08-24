@@ -1,5 +1,3 @@
-Understanding Different Listing Techniques
-======================================================================================
 
 In this chapter, we will explore different listing techniques that you can use to unleash your creativity. We will discuss the benefits of each technique and provide tips for using them effectively.
 

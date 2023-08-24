@@ -1,5 +1,3 @@
-Building a Supportive Creative Network
-=============================================================================
 
 Collaboration and support are crucial for creative success. In this chapter, we'll explore how to build a supportive creative network and leverage the power of collaboration.
 

@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs About Creativity
-=====================================================================================
 
 In this chapter, we will explore how limiting beliefs can hold us back from reaching our creative potential and provide strategies for overcoming them. Limiting beliefs are thoughts or attitudes that prevent us from exploring our creativity, leading to a lack of confidence and resilience in the face of challenges. Here's how to overcome these limiting beliefs and unleash your creative potential:
 

@@ -1,5 +1,3 @@
-The Importance of Creativity
-==========================================
 
 Creativity is the lifeblood of innovation and progress. It's the force that drives us to explore new ideas, push boundaries, and achieve our full potential. From art and music to business and technology, creativity is at the heart of every major breakthrough and achievement.
 

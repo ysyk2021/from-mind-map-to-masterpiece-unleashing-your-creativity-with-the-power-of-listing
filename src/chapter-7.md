@@ -1,5 +1,3 @@
-Chapter 6: Applying Listing to Different Creative Mediums
-=========================================================
 
 Listing is a versatile tool that can be applied to various creative mediums, including writing, visual arts, and music. In this chapter, we'll explore how listing can be used in these different mediums and provide tips for overcoming challenges when applying listing to each one.
 

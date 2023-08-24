@@ -1,5 +1,3 @@
-Sustaining Creativity Over the Long-term
-================================================================================
 
 In this chapter, we'll explore strategies for sustaining creative listing over the long-term. While listing is a powerful tool for unlocking creativity and generating new ideas, it can be challenging to maintain a consistent creative practice over time. In this chapter, we'll offer tips and techniques for cultivating a sustainable creative routine that will allow you to continue to benefit from the power of listing.
 

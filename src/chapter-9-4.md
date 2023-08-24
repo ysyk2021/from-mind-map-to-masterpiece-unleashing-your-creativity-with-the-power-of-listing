@@ -1,5 +1,3 @@
-Building a Support System
-=================================================================
 
 Sustaining a creative practice can be challenging. It's easy to fall into old habits or lose motivation over time. That's why it's important to build a support system that can help to keep you on track and motivated.
 

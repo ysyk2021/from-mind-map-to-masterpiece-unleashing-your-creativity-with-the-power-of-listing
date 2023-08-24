@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Creative Listing
-==========================================
 
 In this chapter, we will explore different techniques for creative listing. We will discuss the benefits and applications of each technique and provide tips for effectively implementing them.
 

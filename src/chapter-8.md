@@ -1,5 +1,3 @@
-Chapter 7: Collaborating with Listing
-=====================================
 
 Collaboration is an essential aspect of creativity, as it allows us to bounce ideas off each other, gain new insights, and push beyond our limitations. With collaboration, we can achieve more significant and more ambitious results than we could alone. In this chapter, we will explore how we can use listing to collaborate efficiently and effectively.
 

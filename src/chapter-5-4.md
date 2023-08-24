@@ -1,5 +1,3 @@
-The Impact of Listing on Ideation
-===============================================================================
 
 Ideation is the process of generating and developing new ideas, and listing is a powerful tool for facilitating this process. In this chapter, we'll explore the impact of listing on ideation and provide some tips for using listing to generate innovative and creative ideas.
 

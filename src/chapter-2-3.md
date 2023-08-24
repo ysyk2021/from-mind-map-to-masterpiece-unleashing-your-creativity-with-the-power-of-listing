@@ -1,5 +1,3 @@
-The Role of Listing in Creativity
-=============================================================================
 
 In this chapter, we'll explore the relationship between creativity and listing, and how listing can play a vital role in unleashing your creative potential.
 

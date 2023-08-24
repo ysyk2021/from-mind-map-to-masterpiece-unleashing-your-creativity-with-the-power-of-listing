@@ -1,5 +1,3 @@
-Brainstorming and Freewriting
-=========================================================================
 
 In this chapter, we will explore two popular techniques for creative listing: brainstorming and freewriting. We will discuss the benefits of each technique and provide tips for using them effectively.
 

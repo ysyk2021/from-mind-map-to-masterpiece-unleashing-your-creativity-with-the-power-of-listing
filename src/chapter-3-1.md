@@ -1,5 +1,3 @@
-Developing a Growth Mindset
-====================================================================
 
 A growth mindset is essential for creative success. In this chapter, we'll explore how to develop a growth mindset and cultivate the right mindset for creative listing.
 

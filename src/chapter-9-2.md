@@ -1,5 +1,3 @@
-Strategies for Maintaining Motivation and Inspiration
-=============================================================================================
 
 In this chapter, we'll discuss strategies for maintaining motivation and inspiration in your creative listing practice.
 

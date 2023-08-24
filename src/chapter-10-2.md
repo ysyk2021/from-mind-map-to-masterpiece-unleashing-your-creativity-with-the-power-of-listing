@@ -1,5 +1,3 @@
-Using Creative Listing for Professional Development
-=====================================================================================================================
 
 Not only can creative listing be a powerful tool for personal growth, but it can also play an important role in professional development. In this chapter, we'll explore how creative listing can help you achieve greater success in your career or business.
 

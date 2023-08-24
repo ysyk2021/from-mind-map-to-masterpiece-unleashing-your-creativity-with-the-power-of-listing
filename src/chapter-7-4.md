@@ -1,5 +1,3 @@
-Overcoming Challenges When Applying Listing to Different Mediums
-===========================================================================================================================
 
 As we've discussed in previous chapters, creative listing is a powerful tool for unleashing your creativity, no matter the medium. However, applying listing to different creative mediums can sometimes present unique challenges. In this chapter, we'll explore some common challenges when using listing in various creative disciplines and offer tips for overcoming them.
 

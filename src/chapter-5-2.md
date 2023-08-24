@@ -1,5 +1,3 @@
-Strategies for Generating Ideas Using Listing
-===========================================================================================
 
 Generating ideas is a critical component of the creative process, and listing is a powerful tool that can help you generate and organize your ideas effectively. By using listing for idea generation, you can break through creative blocks, explore new possibilities, and develop innovative concepts. In this chapter, we'll explore some strategies for generating ideas using listing.
 

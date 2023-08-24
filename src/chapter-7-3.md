@@ -1,5 +1,3 @@
-Using Listing for Music and Performance
-==================================================================================================
 
 Listing is a versatile tool that can be applied to different creative mediums, including music and performance. By using listing in music and performance, you can generate and organize ideas, refine and develop concepts, and create works of art that are innovative and impactful. In this chapter, we'll explore some strategies for using listing in music and performance.
 

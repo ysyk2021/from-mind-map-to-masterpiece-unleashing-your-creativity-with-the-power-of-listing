@@ -1,5 +1,3 @@
-Chapter 5: Refining and Developing Ideas with Listing
-=====================================================
 
 Refining and developing ideas is a crucial part of the creative process. It's not enough to simply come up with an idea; you need to refine and develop it into something that's viable and impactful. Using listing as a tool can help you do this effectively. In this chapter, we'll explore some strategies for using listing to refine and develop your ideas.
 

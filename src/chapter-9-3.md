@@ -1,5 +1,3 @@
-Overcoming Burnout and Exhaustion
-=========================================================================
 
 In this chapter, we'll discuss how to sustain your creative listing practice over time by avoiding burnout and exhaustion.
 

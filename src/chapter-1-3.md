@@ -1,5 +1,3 @@
-Overview of the Book's Contents
-=============================================
 
 Welcome to "From Mind Map to Masterpiece: Unleashing Your Creativity with the Power of Listing"! In this book, we'll explore how to tap into your creative potential using the power of listing.
 
