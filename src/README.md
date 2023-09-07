@@ -6,3 +6,7 @@ In this book, we'll explore the power of mind mapping and listing as tools for u
 By the end of this book, you'll have a deeper understanding of your own creative process and the tools you need to unleash your inner artist. Whether you're an experienced professional or just starting out, "From Mind Map to Masterpiece" offers something for everyone looking to tap into their creative potential. So let's get started on this exciting journey towards unleashing your creativity!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
