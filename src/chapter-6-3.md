@@ -1,5 +1,4 @@
-Chapter 4: Building upon Initial Ideas with Listing
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the technique of listing as a powerful tool for building upon initial ideas and unlocking creativity in the process. From brainstorming sessions to creative projects, listing can help individuals expand their thinking, generate new insights, and refine their ideas. By understanding and harnessing the power of listing, individuals can take their initial ideas and transform them into masterpieces. Let's delve into how to effectively build upon initial ideas using the technique of listing.
 

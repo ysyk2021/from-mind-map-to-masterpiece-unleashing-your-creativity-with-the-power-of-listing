@@ -1,5 +1,4 @@
-Chapter: Overcoming Communication Barriers in Creative Collaboration
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common communication barriers that can hinder creative collaboration and provide strategies for overcoming them. Effective communication is crucial for successful collaboration, as it ensures that ideas are accurately conveyed, feedback is understood, and teamwork is streamlined. By addressing these barriers head-on and implementing practical solutions, you can foster clear and productive communication within your creative collaborations.
 

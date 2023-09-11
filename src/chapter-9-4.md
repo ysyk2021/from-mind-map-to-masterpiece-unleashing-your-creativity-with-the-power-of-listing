@@ -1,5 +1,4 @@
-Chapter: Building a Support System
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building a support system to unleash your creativity and maximize the power of listing techniques. A strong support system plays a pivotal role in nurturing your creative process, providing guidance, motivation, and constructive feedback. We will delve into various strategies for cultivating a supportive network of individuals who can help you on your journey towards mastering the art of mind mapping and unleashing your creative potential.
 

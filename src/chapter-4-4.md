@@ -1,5 +1,4 @@
-Chapter 4: Outlining and Organizing
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical role of outlining and organizing in unleashing your creativity. By utilizing the power of listing techniques, you can bring structure and clarity to your ideas, enabling you to navigate the creative process with confidence and efficiency.
 

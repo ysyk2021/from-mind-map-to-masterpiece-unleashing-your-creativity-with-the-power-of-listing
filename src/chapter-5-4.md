@@ -1,5 +1,4 @@
-Chapter 7: The Impact of Listing on Ideation
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the powerful impact of listing on the ideation process. Listing, as a creative technique, holds the potential to unlock innovative ideas, enhance brainstorming sessions, and amplify your creative output. We will explore how employing listing strategies can fuel your ideation process and lead you to creative breakthroughs.
 

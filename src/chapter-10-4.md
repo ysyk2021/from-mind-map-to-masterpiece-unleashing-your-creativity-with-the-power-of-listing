@@ -1,5 +1,4 @@
-Chapter: The Impact of Creative Listing on Personal and Professional Success
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact of creative listing on personal and professional success. Listing, a powerful technique for organizing thoughts and ideas, has the potential to unlock creativity, boost productivity, and drive innovation. We will delve into the benefits of creative listing and how it can be applied to various aspects of life, empowering individuals to reach new heights of achievement.
 

@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Limiting Beliefs About Creativity
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful impact of overcoming limiting beliefs about creativity. Our beliefs shape our reality, and when it comes to creativity, certain beliefs can hinder our creative potential. By challenging and reframing these beliefs, we can unlock our true creative capabilities and unleash our creative masterpieces.
 

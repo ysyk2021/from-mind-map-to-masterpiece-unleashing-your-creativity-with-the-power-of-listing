@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Resistance to Incorporating Creativity into Personal and Professional Life
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common resistance individuals face when incorporating creativity into their personal and professional lives. We will discuss the underlying causes of this resistance and provide strategies to overcome it. By understanding and addressing these barriers, you can unlock your creative potential and integrate it seamlessly into all aspects of your life.
 

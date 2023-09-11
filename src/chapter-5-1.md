@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Idea Generation in Creativity
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of idea generation in the creative process. Ideas are the building blocks of any masterpiece, and by understanding their significance, you can unlock your creative potential and bring your vision to life.
 

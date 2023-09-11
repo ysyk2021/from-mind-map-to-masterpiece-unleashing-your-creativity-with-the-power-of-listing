@@ -1,5 +1,4 @@
-Chapter 10: Embracing Creative Listing
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of creative listing and how it can unleash your creativity. Listing is a simple yet powerful technique that can help you generate ideas, organize your thoughts, and unlock innovative solutions to problems. We will delve into various strategies and tips to embrace creative listing effectively.
 

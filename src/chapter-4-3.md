@@ -1,5 +1,4 @@
-Chapter 6: Clustering and Mind Mapping
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will dive into the techniques of clustering and mind mapping as powerful tools for harnessing creativity and unlocking new connections in the creative process. Clustering and mind mapping allow individuals to visually organize their thoughts, generate ideas, and explore relationships between concepts. By understanding the principles and techniques of clustering and mind mapping, individuals can tap into their inherent creativity and transform their ideas into masterpieces. Let's explore how clustering and mind mapping can unleash your creativity.
 

@@ -1,5 +1,4 @@
-Chapter: Sustaining Creativity Over the Long-Term
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for sustaining creativity over the long-term. While creativity is a dynamic and ever-changing process, it is important to nurture and maintain it to continuously unleash your creative potential. We will discuss ways to overcome creative blocks, foster a supportive environment, and incorporate habits that fuel creativity in your journey from mind map to masterpiece.
 

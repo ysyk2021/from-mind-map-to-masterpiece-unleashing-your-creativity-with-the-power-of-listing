@@ -1,5 +1,4 @@
-Chapter 1: What is Creativity?
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creativity is a fascinating and elusive concept that sparks curiosity and fuels innovation. It is the driving force behind humanity's greatest achievements, from breathtaking works of art to groundbreaking scientific discoveries. In this chapter, we will delve into the essence of creativity, exploring its definition, characteristics, and the various theories that attempt to unravel its mysteries.
 

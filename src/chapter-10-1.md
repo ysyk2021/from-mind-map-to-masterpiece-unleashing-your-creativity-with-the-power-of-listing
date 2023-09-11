@@ -1,5 +1,4 @@
-Chapter: The Role of Creative Listing in Personal Growth
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how creative listing can catalyze personal growth and unleash your creative potential. Listing techniques offer a powerful framework for organizing thoughts, generating ideas, and gaining valuable insights. By leveraging the power of creative listing, you can enhance self-reflection, expand your perspective, and embark on a transformative journey towards personal growth.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Role of Listing in Creativity
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of creativity, listing is a powerful tool that can unlock new perspectives, enhance ideation, and streamline the creative process. By organizing thoughts, ideas, and information in a structured manner, listing enables individuals to navigate the vast landscape of their thoughts and explore connections that may otherwise remain hidden. In this chapter, we will explore the role of listing in creativity, its benefits, and practical strategies for maximizing its potential.
 

@@ -1,5 +1,4 @@
-Chapter: Overcoming Burnout and Exhaustion
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming burnout and exhaustion during your creative journey. Burnout and exhaustion are common challenges that creative individuals face when they push themselves too hard or neglect self-care. We will discuss various techniques and practices that can help you prevent and recover from burnout, allowing you to maintain a sustainable and fulfilling creative practice.
 

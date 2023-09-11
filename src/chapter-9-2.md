@@ -1,5 +1,4 @@
-Chapter: Strategies for Maintaining Motivation and Inspiration
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for maintaining motivation and inspiration throughout your creative journey. Creativity is a dynamic and evolving process, and it is essential to cultivate a mindset that keeps you motivated and inspired. We will discuss various techniques and practices that can help you stay engaged, overcome creative blocks, and unleash your full creative potential.
 

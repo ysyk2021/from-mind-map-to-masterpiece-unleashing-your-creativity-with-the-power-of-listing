@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Building Self-Confidence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for building self-confidence. Confidence plays a crucial role in unleashing your creativity and achieving mastery in your creative endeavors. By implementing the following strategies, you can cultivate a strong sense of self-assurance and propel your creative journey to new heights.
 

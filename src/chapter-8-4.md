@@ -1,5 +1,4 @@
-Chapter: Building a Supportive Creative Network
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building a supportive creative network and provide guidance on how to establish and nurture meaningful connections within the creative community. A strong support system plays a vital role in your creative journey, providing inspiration, feedback, collaboration opportunities, and emotional support. We will discuss strategies for finding like-minded individuals, fostering relationships, and leveraging your creative network to enhance your artistic growth.
 

@@ -1,5 +1,4 @@
-Chapter 5: Brainstorming and Freewriting
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the techniques of brainstorming and freewriting as powerful tools to unlock your creativity. Through these methods, you can generate a multitude of ideas and overcome creative blocks. Let's delve into the world of brainstorming and freewriting and learn how they can propel you towards creating masterpiece-level works.
 

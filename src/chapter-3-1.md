@@ -1,5 +1,4 @@
-Chapter 6: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of a growth mindset and its significance in fostering creativity. By cultivating a growth mindset, you can overcome challenges, embrace the learning process, and unlock your full creative potential. Let's explore the key principles and strategies for developing a growth mindset.
 

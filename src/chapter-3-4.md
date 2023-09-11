@@ -1,5 +1,4 @@
-Chapter 5: The Power of Positive Thinking
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact of positive thinking on unleashing your creativity. By harnessing the power of a positive mindset, you can overcome obstacles, tap into your inner potential, and propel yourself towards creative mastery.
 
